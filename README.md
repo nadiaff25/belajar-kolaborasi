@@ -1,2 +1,3 @@
 # belajar-kolaborasi
-Belajar di Dicoding sangat menyenangkan!
+Belajar Github di Dicoding sangat menyenangkan!! 
+ayo belajar bersamaaa 
